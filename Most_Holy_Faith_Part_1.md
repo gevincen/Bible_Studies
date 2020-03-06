@@ -112,6 +112,9 @@ Ex 25:40
 Exodus 25:40 KJV
 And look that thou make them after their pattern, which was shewed thee in the mount.
 
+He had all the kowledge that he studied in Egypt. 
+Shikkim wood, thorny wood, why not lebanon or kedar wood?
+covering of tabernacle was 
 Use the pattern or his own idea
 Thorny wood
 Why can't use other woods
