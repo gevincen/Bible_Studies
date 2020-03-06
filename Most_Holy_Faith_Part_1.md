@@ -5,11 +5,13 @@
 [21] Keep yourselves in the love of God, looking for the mercy of our Lord Jesus Christ unto eternal life.
 
 * There is a gap or gulf between man and God.
-* It was not so when God created man and kept him in the Garden of Eden
-* God wanted to have a close fellowship with man and hence He created man with that purpose
-* Due to disobedience man fell and gap came between man and God
-* then God initiated various ways to restore the fellowship with man, to build Tabernacle , God to dwell amongst them, 
-* He gave commandments
+* It was not so when God created man and placed him in the Garden of Eden.
+* God and man had a close fellowship with one another.
+* Due to disobedience of man there was a gap between man and God.
+* Then God initiated various ways to restore the fellowship with man 
+  * told them to build Tabernacle to dwell among them 
+  * gave commandments, laws, offerings, sacrifices, rituals, etc
+  * they sincerely did all, obeyed but yet hearts were away from the Lord
 
 # Tabernacle, Offering, sacrifices, yet their hearts were far away from the Lord
 ## Jeremiah 7:21-23 KJV
@@ -17,29 +19,44 @@
 [22] For I spake not unto your fathers, nor commanded them in the day that I brought them out of the land of Egypt, concerning burnt offerings or sacrifices: \
 [23] But this thing commanded I them, saying, Obey my voice, and I will be your God, and ye shall be my people: and walk ye in all the ways that I have commanded you, that it may be well unto you.\
 
-* they did everything God required but hearts were not dedicated to the Lord
-* God removed Tabernacle, 
-God brought Jesus Christ into the 
+* they did everything whatever the law required but their hearts were never closer to God
+* Even after building the temple, Solomon built the temple, glory filled the temple but their hearts were not dedicated to the Lord
+* so God removed Tabernacle and also removed the Temple of Solomon I & II 
+* In the NT God brings another method to bridge the gap between man and God
+* He brought Jesus Christ 
+* JC is/became the one between God and man  
 
 Hebrews 10:19-20 KJV
 [19] Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, \
 [20] By a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh; \
 
-By Faith man can enter into most holy place. Step by step, to come to most holy faith.
+* man who could not come to the holy place or most holy place, through calvery could enter into the most holy place by faith. 
+* In short, by faith man can enter into this place.
+* In this faith, there is a standard of faith, when you go/grow on step by step, you can come to the highest/pinacle std of faith which is most holy faith.
+* If this faith is destroyed you can not stand in the spiritual life
 
 Luke 22:32 KJV
 But I have prayed for thee, that thy faith fail not: and when thou art converted, strengthen thy brethren.
 
-One person never forgets you.
+* Satan asked permission to swift Peter like wheat, Christ could have refused that permission; He didn't say that but permitted. But prayed that faith should not fail
+* Question comes why ? when doing good I am misunderstood, when doing good you have sickenss, failure, pain, situations others don't have, why? why trials to me? Jesus could have not allowed it, but why God allowed it? 
+* You see God is silently waiting, not only waiting but praying for you, in that trial if you stand and retain that faith, able to keep the faith in the modst of the trial, then you will be victorious
+* The pbm is how to preserve the faith in the midst of the trial, here Jesus prayed for Peter
+* Elder wrote to C John, Pastor all forgot to pray for me, Pastor replied, may be true, all forgot to pray for but One person never forgets you. i.e., Jesus, never sleeps nor slumber to pray for you.
+* We are here beause one interceeds on our behalf, never think you are forgotten
 
+# Faith is like a TREE
 Luke 17:6 KJV
 And the Lord said, If ye had faith as a grain of mustard seed, ye might say unto this sycamine tree, Be thou plucked up by the root, and be thou planted in the sea; and it should obey you.
 
-Faith as a Tree, Mountain
-Highest(sumit)Mountain, middle, base
+When you sow a seed, dies, grows and becomes a tree.
 
-Base camp:
-Top, no 2 people can stand, so one afrer the other claimed.
+You can meditate Faith as a Tree, or as a  Mountain.
+
+Base, Middle, Highest(sumit)Mountain
+
+Base Camp I:
+Top, no 2 people can stand, so one afrer the other claimed. same way, when you come to the highest standard of faith, you and the Lord. We divide it in different base camp and study.
 Highest standard : you and the Lord, no one else.
 
 1st base camp : common faith
@@ -50,7 +67,6 @@ To Titus, mine own son after the common faith: Grace, mercy, and peace, from God
 
 2nd base camp : power camp
 Faith that moves the mountain
-1 corr 13:2
 1 Corinthians 13:2 KJV
 And though I have the gift of prophecy, and understand all mysteries, and all knowledge; and though I have all faith, so that I could remove mountains, and have not charity, I am nothing.
 
@@ -58,40 +74,39 @@ And though I have the gift of prophecy, and understand all mysteries, and all kn
 1 Corinthians 12:9 KJV
 To another faith by the same Spirit; to another the gifts of healing by the same Spirit;
 
-2 corr 4:9 -- Spirit of faith
+2 corr 4:9,14 -- Spirit of faith
 2 Corinthians 4:13 KJV
 We having the same spirit of faith, according as it is written, I believed, and therefore have I spoken; we also believe, and therefore speak;
 
-1 Peter 1:1
+III
 2 Peter 1:1 KJV
 Simon Peter, a servant and an apostle of Jesus Christ, to them that have obtained like precious faith with us through the righteousness of God and our Saviour Jesus Christ:
+Faith of the elect
 
 Tit 1:1
 Titus 1:1 KJV
 Paul, a servant of God, and an apostle of Jesus Christ, according to the faith of God's elect, and the acknowledging of the truth which is after godliness;
 
-Most holy faith
+Most Holy Faith
 Faith of the Son of God
 
-We think we are alright in faith.
-Servants shining well -- you think they are settled, suddenly you hear they are no more.
+where we are today? We think we are alright in faith/spiritual life.
+Servants shining well/like stars -- you think they are settled, suddenly you hear they are no more. Why?
+During Pr Paul's period 3 were there, 40 days fasting, gift of preaching well, Lord gave preaching gift, like angel came down and preached, they couldn't stand in the faith, so high they failed. Failure doesn't come one day, day by day hour by hour
+Sister talking with her for 45 min, Pasror was watching him, you are experienced/talented/educated person, he said I can manage myself.
 
-During Pr Paul's period 3 were there, 40 days fasting, Lord gave preaching gift,
-they couldn't stand in the faith, so high they failed. Failure doesn't come one day, day by day hour by hour
-Sister talking with her for 45 min
-Hope I can manage myself
-
-Satan's main target is faith
+Satan's main target is your faith
 Eph 6:16
 Ephesians 6:16 KJV
 Above all, taking the shield of faith, wherewith ye shall be able to quench all the fiery darts of the wicked.
 
 By the shield of faith you can withstand
-
+if shield broken no one can stand
+there are many reasons but 2 here.
 (1) Sin enters this faith is difficult
 After you obeyed the baptism then sin entered then no faith
 Very watchful of sin
-(2) Human reasoning/wisdom will destroy your faith
+(2) when you exercise Human Reasonings/wisdom will destroy your faith
 
 Ex 25:40
 Exodus 25:40 KJV
