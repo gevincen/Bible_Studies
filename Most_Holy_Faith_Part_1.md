@@ -7,41 +7,41 @@
 * There is a gap or gulf between man and God.
 * It was not so when God created man and placed him in the Garden of Eden.
 * God and man had a close fellowship with one another.
-* Due to disobedience of man there was a gap between man and God.
-* Then God initiated various ways to restore the fellowship with man 
+* Due to man's disobedience there was a gap between man and God.
+* Then God initiated various ways to restore the fellowship with man as it says in the following:
   * told them to build Tabernacle to dwell among them 
   * gave commandments, laws, offerings, sacrifices, rituals, etc
   * they sincerely did all, obeyed but yet hearts were far away from the Lord
 
-# Tabernacle, laws, offerings, sacrifices, commandments yet their hearts were far away from the Lord
+# Tabernacle, laws, offerings, sacrifices, commandments:yet their hearts were far away from the Lord.
 ## Jeremiah 7:21-23 KJV
 [21] Thus saith the Lord of hosts, the God of Israel; Put your burnt offerings unto your sacrifices, and eat flesh. \
 [22] For I spake not unto your fathers, nor commanded them in the day that I brought them out of the land of Egypt, concerning burnt offerings or sacrifices: \
 [23] But this thing commanded I them, saying, Obey my voice, and I will be your God, and ye shall be my people: and walk ye in all the ways that I have commanded you, that it may be well unto you.\
 
-* they did everything whatever the law required but their hearts were never closer to God
-* Even after building the temple, Solomon built the temple, glory filled the temple but their hearts were not dedicated to the Lord
-* so God removed Tabernacle and also removed the Temple of Solomon, I & II 
-* In the NT God brings another method to bridge the gap between man and God
-* He brought Jesus Christ 
-* JC is/became the one between God and man  
+* They did everything whatever the law required,but their hearts were never closer to God.
+* Even after building the temple, Solomon built the temple, glory filled the temple; yet their hearts were not dedicated to the Lord.
+* So God removed the Tabernacle and also removed the I & II temples of King Solomon.
+* In the NT God brings another method to bridge the gap between man and God.
+* He brought Jesus Christ,
+* so JC is/became the one between God and man.
 
 ## Hebrews 10:19-20 KJV
 [19] Having therefore, brethren, boldness to enter into the holiest by the blood of Jesus, \
 [20] By a new and living way, which he hath consecrated for us, through the veil, that is to say, his flesh; \
 
-* man who could not come to the holy place or most holy place, through calvery could enter into the most holy place by faith. 
+* Man could not come to the holy place or most holy place,but through calvery man[us] can enter into the most holy place by faith. 
 * In short, by faith man can enter into this place.
 * In this faith, there is a standard of faith, when you go/grow on step by step, you can come to the highest/pinacle std of faith which is most holy faith.
-* If this faith is destroyed you can not stand in the spiritual life
+* If this faith is destroyed,you can not stand in the spiritual life.
 
 ## Luke 22:32 KJV
 But I have prayed for thee, that thy faith fail not: and when thou art converted, strengthen thy brethren.
 
-* Satan asked permission to swift Peter like wheat, Christ could have refused that permission; He didn't say that but permitted. But prayed that faith should not fail
-* Question comes why ? when doing good I am misunderstood, when doing good you have sickenss, failure, pain, situations others don't have, why? why trials to me? Jesus could have not allowed it, but why God allowed it? 
-* You see God is silently waiting, not only waiting but praying for you, in that trial if you stand and retain that faith, able to keep the faith in the modst of the trial, then you will be victorious
-* The pbm is how to preserve the faith in the midst of the trial, here Jesus prayed for Peter
+* Satan asked permission to swift Peter like wheat, Christ could have refused that permission; He didn't say that but permitted,but instead prayed that faith should not fail.
+* Our question comes, why ? when doing good I am misunderstood, when doing good I have sickenss, failure, pain, situations others don't have, why? why trials to me? Jesus could have not allowed it, but why has God allowed it? 
+* You see God is silently waiting, not only waiting,but praying for you! In that trial if you stand and retain that faith,and able to keep the faith in the midst of the trial, then you will be victorious!
+* The pbm is,how to preserve the faith in the midst of the trial? Here Jesus prayed for Peter.
 * Elder wrote to C John, Pastor all forgot to pray for me, Pastor replied, may be true, all forgot to pray for but One person never forgets you. i.e., Jesus, never sleeps nor slumber to pray for you.
 * We are here beause one interceeds on our behalf, never think you are forgotten
 
