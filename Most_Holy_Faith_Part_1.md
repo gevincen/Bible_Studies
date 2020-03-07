@@ -55,6 +55,7 @@ And the Lord said, If ye had faith as a grain of mustard seed, ye might say unto
 
 * Here we medidate it as a **Mountain**
 
+# Faith is like a Mountain
 * To climb up the Mountain, just can't climb up without training : there are camps to climb up.
 
 * These are Base Camp (I), Camp in the Middle (Base Camp II) of the Mountain , Camp (Base Camp III) in the Highest(sumit) of the Mountain.
@@ -73,26 +74,26 @@ To Titus, mine own son after the **common faith**: Grace, mercy, and peace, from
 ## 1 Corinthians 13:2 KJV
 And though I have the gift of prophecy, and understand all mysteries, and all knowledge; and though I have all faith, so that I could remove mountains, and have not charity, I am nothing.
 
-* Gift of Faith
+## Gift of Faith
 ## 1 Corinthians 12:9 KJV
 To another faith by the same Spirit; to another the gifts of healing by the same Spirit;
 
-* Spirit of faith
+## Spirit of faith
 ## 2 Corinthians 4:13 KJV
 We having the same spirit of faith, according as it is written, I believed, and therefore have I spoken; we also believe, and therefore speak;
 
 # Base Camp III
-* Precious Faith
+## Precious Faith
 ## 2 Peter 1:1 KJV
 Simon Peter, a servant and an apostle of Jesus Christ, to them that have obtained like precious faith with us through the righteousness of God and our Saviour Jesus Christ:
 
-* Faith of the elect
+## Faith of the elect
 ## Tit 1:1
 Titus 1:1 KJV
 Paul, a servant of God, and an apostle of Jesus Christ, according to the faith of God's elect, and the acknowledging of the truth which is after godliness;
 
-* Most Holy Faith
-* Faith of the Son of God
+## Most Holy Faith
+## Faith of the Son of God
 
 * Where we are today? We think we are alright in Faith/Spiritual Life.
 Servants shining well/like stars -- you think they are settled and doing great, suddenly you hear they are no more. Why?
