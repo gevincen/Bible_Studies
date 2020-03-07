@@ -11,9 +11,9 @@
 * Then God initiated various ways to restore the fellowship with man 
   * told them to build Tabernacle to dwell among them 
   * gave commandments, laws, offerings, sacrifices, rituals, etc
-  * they sincerely did all, obeyed but yet hearts were away from the Lord
+  * they sincerely did all, obeyed but yet hearts were far away from the Lord
 
-# Tabernacle, Offering, sacrifices, yet their hearts were far away from the Lord
+# Tabernacle, laws, offerings, sacrifices, commandments yet their hearts were far away from the Lord
 ## Jeremiah 7:21-23 KJV
 [21] Thus saith the Lord of hosts, the God of Israel; Put your burnt offerings unto your sacrifices, and eat flesh. \
 [22] For I spake not unto your fathers, nor commanded them in the day that I brought them out of the land of Egypt, concerning burnt offerings or sacrifices: \
@@ -21,7 +21,7 @@
 
 * they did everything whatever the law required but their hearts were never closer to God
 * Even after building the temple, Solomon built the temple, glory filled the temple but their hearts were not dedicated to the Lord
-* so God removed Tabernacle and also removed the Temple of Solomon I & II 
+* so God removed Tabernacle and also removed the Temple of Solomon, I & II 
 * In the NT God brings another method to bridge the gap between man and God
 * He brought Jesus Christ 
 * JC is/became the one between God and man  
