@@ -65,7 +65,8 @@ And the Lord said, If ye had faith as a grain of mustard seed, ye might say unto
 # Base Camp I:
 * Its the 1st base camp : **Common Faith**
 
-# Titus 1:4 KJV
+## Common Faith
+## Titus 1:4 KJV
 To Titus, mine own son after the **common faith**: Grace, mercy, and peace, from God the Father and the Lord Jesus Christ our Saviour.
 
 # Base Camp II 
