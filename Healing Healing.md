@@ -85,3 +85,5 @@ The thief cometh not, but for to steal, and to kill, and to destroy: I am come t
 
 # 42. இப்படி அவர் சொன்னவுடனே, குஷ்டரோகம் அவனை விட்டு நீங்கிற்று, அவன் சுத்தமானான்.
 # And as soon as he had spoken, immediately the leprosy departed from him, and he was cleansed.
+
+## 23 times, He healed all, whole, compassion
