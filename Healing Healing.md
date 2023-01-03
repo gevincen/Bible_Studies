@@ -53,6 +53,26 @@ The thief cometh not, but for to steal, and to kill, and to destroy: I am come t
 # 3. நமது தேவனைத் துதிக்கும் புதுப்பாட்டை அவர் என் வாயிலே கொடுத்தார்; அநேகர் அதைக் கண்டு, பயந்து, கர்த்தரை நம்புவார்கள்.
 # And he hath put a new song in my mouth, even praise unto our God: many shall see it, and fear, and shall trust in the LORD.
 
+# 3. அவர் உன் அக்கிரமங்களையெல்லாம் மன்னித்து, உன் நோய்களையெல்லாம் குணமாக்கி,
+# Who forgiveth all thine iniquities; who healeth all thy diseases;
 
+# 4. உன் பிராணனை அழிவுக்கு விலக்கி மீட்டு, உன்னைக் கிருபையினாலும் இரக்கங்களினாலும் முடிசூட்டி,
+# Who redeemeth thy life from destruction; who crowneth thee with lovingkindness and tender mercies;
 
+# 5. நன்மையினால் உன் வாயைத் திருப்தியாக்குகிறார்; கழுகுக்குச் சமானமாய் உன் வயது திரும்ப வாலவயது போலாகிறது.
+# Who satisfieth thy mouth with good things; so that thy youth is renewed like the eagle's.
 
+# 14. என் நாமம் தரிக்கப்பட்ட என் ஜனங்கள் தங்களைத் தாழ்த்தி, ஜெபம்பண்ணி, என் முகத்தைத் தேடி, தங்கள் பொல்லாத வழிகளைவிட்டுத் திரும்பினால், அப்பொழுது பரலோகத்திலிருக்கிற நான் கேட்டு, அவர்கள் பாவத்தை மன்னித்து, அவர்கள் தேசத்துக்கு க்ஷேமத்தைக் கொடுப்பேன்.
+# If my people, which are called by my name, shall humble themselves, and pray, and seek my face, and turn from their wicked ways; then will I hear from heaven, and will forgive their sin, and will heal their land.
+
+# 22. இயேசு அவர்களை நோக்கி: தேவனிடத்தில் விசுவாசமுள்ளவர்களாயிருங்கள்.
+# And Jesus answering saith unto them, Have faith in God.
+
+# 23. எவனாகிலும் இந்த மலையைப் பார்த்து: நீ பெயர்ந்து, சமுத்திரத்திலே தள்ளுண்டுபோ என்று சொல்லி, தான் சொன்னபடியே நடக்கும் என்று தன் இருதயத்தில் சந்தேகப்படாமல் விசுவாசித்தால், அவன் சொன்னபடியே ஆகும் என்று மெய்யாகவே உங்களுக்குச் சொல்லுகிறேன்.
+# For verily I say unto you, That whosoever shall say unto this mountain, Be thou removed, and be thou cast into the sea; and shall not doubt in his heart, but shall believe that those things which he saith shall come to pass; he shall have whatsoever he saith.
+
+# 24. ஆதலால், நீங்கள் ஜெபம்பண்ணும்போது எவைகளைக் கேட்டுக்கொள்வீர்களோ, அவைகளைப் பெற்றுகொள்வோம் என்று விசுவாசியுங்கள், அப்பொழுது அவைகள் உங்களுக்கு உண்டாகும் என்று சொல்லுகிறேன்.
+# Therefore I say unto you, What things soever ye desire, when ye pray, believe that ye receive them, and ye shall have them.
+
+# 25. நீங்கள் நின்று ஜெபம்பண்ணும்போது, ஒருவன்பேரில் உங்களுக்கு யாதொரு குறை உண்டாயிருக்குமானால், பரலோகத்திலிருக்கிற உங்கள் பிதா உங்கள் தப்பிதங்களை உங்களுக்கு மன்னிக்கும்படி, அந்தக் குறையை அவனுக்கு மன்னியுங்கள்.
+# And when ye stand praying, forgive, if ye have ought against any: that your Father also which is in heaven may forgive you your trespasses.
