@@ -87,3 +87,30 @@ The thief cometh not, but for to steal, and to kill, and to destroy: I am come t
 # And as soon as he had spoken, immediately the leprosy departed from him, and he was cleansed.
 
 ## 23 times, He healed all, whole, compassion
+
+## wants to heal the inner man first, part takers of divine nature, soul first
+## John Lake, apostle of Africa ; Alexandar Dobi
+
+# 38. நசரேயனாகிய இயேசுவைத் தேவன் பரிசுத்தஆவியினாலும் வல்லமையினாலும் அபிஷேகம்பண்ணினார்; தேவன் அவருடனேகூட இருந்தபடியினாலே அவர் நன்மைசெய்கிறவராயும் பிசாசின் வல்லமையில் அகப்பட்ட யாவரையும் குணமாக்குகிறவராயும் சுற்றித்திரிந்தார்.
+# How God anointed Jesus of Nazareth with the Holy Ghost and with power: who went about doing good, and healing all that were oppressed of the devil; for God was with him.
+
+# 16. இதோ, சாத்தான் பதினெட்டு வருஷமாய்க் கட்டியிருந்த ஆபிரகாமின் குமாரத்தியாகிய இவளை ஓய்வுநாளில் இந்தக்கட்டிலிருந்து அவிழ்த்துவிடவேண்டியதில்லையா என்றார்.
+# And ought not this woman, being a daughter of Abraham, whom Satan hath bound, lo, these eighteen years, be loosed from this bond on the sabbath day?
+
+# 14. ஆதலால், பிள்ளைகள் மாம்சத்தையும் இரத்தத்தையும் உடையவர்களாயிருக்க, அவரும் அவர்களைப்போல மாம்சத்தையும் இரத்தத்தையும் உடையவரானார்; மரணத்துக்கு அதிகாரியாகிய பிசாசானவனைத் தமது மரணத்தினாலே அழிக்கும்படிக்கும்,
+# Forasmuch then as the children are partakers of flesh and blood, he also himself likewise took part of the same; that through death he might destroy him that had the power of death, that is, the devil;
+
+# when we are in the right communion and fellowship with the Lord there is not power enough in all hell to put disease in your little finger
+
+
+# Now == not expecting but accepting
+
+# 3. உம்மை உறுதியாய்ப் பற்றிக்கொண்ட மனதையுடையவன் உம்மையே நம்பியிருக்கிறபடியால், நீர் அவனைப் பூரண சமாதானத்துடன் காத்துக்கொள்வீர்.
+# Thou wilt keep him in perfect peace, whose mind is stayed on thee: because he trusteth in thee.
+
+# Trust Vs Believe
+# 22. யாக்கோபுக்கு விரோதமாய் அக்கினி பற்றியெரிந்தது; இஸ்ரவேலுக்கு விரோதமாய்க் கோபம் மூண்டது.
+# Because they believed not in God, and trusted not in his salvation:
+
+# Believe : God can do great things
+# Trust : Believe God will do great things
