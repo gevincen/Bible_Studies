@@ -76,3 +76,12 @@ The thief cometh not, but for to steal, and to kill, and to destroy: I am come t
 
 # 25. நீங்கள் நின்று ஜெபம்பண்ணும்போது, ஒருவன்பேரில் உங்களுக்கு யாதொரு குறை உண்டாயிருக்குமானால், பரலோகத்திலிருக்கிற உங்கள் பிதா உங்கள் தப்பிதங்களை உங்களுக்கு மன்னிக்கும்படி, அந்தக் குறையை அவனுக்கு மன்னியுங்கள்.
 # And when ye stand praying, forgive, if ye have ought against any: that your Father also which is in heaven may forgive you your trespasses.
+
+# 40. அப்பொழுது குஷ்டரோகி ஒருவன் அவரிடத்தில் வந்து, அவர் முன்பாக முழங்கால்படியிட்டு: உமக்குச் சித்தமானால் என்னைச் சுத்தமாக்க உம்மால் ஆகும் என்று வேண்டிக்கொண்டான்.
+# And there came a leper to him, beseeching him, and kneeling down to him, and saying unto him, If thou wilt, thou canst make me clean.
+
+# 41. இயேசு மனதுருகி, கையை நீட்டி, அவனைத் தொட்டு: எனக்குச் சித்தமுண்டு, சுத்தமாகு என்றார்.
+# And Jesus, moved with compassion, put forth his hand, and touched him, and saith unto him, I will; be thou clean.
+
+# 42. இப்படி அவர் சொன்னவுடனே, குஷ்டரோகம் அவனை விட்டு நீங்கிற்று, அவன் சுத்தமானான்.
+# And as soon as he had spoken, immediately the leprosy departed from him, and he was cleansed.
