@@ -113,4 +113,4 @@
 # Because they believed not in God, and trusted not in his salvation:
 
 # Believe : God can do great things
-# Trust : Believe God will do great things
+# Trust : Believing God will do great things
